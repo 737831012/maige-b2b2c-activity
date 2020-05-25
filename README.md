@@ -1,0 +1,1 @@
+# maige-b2b2c-activity
